@@ -1,4 +1,4 @@
-# Virus_trojan-CAUTION-don-t-try-this-_FOR_LINUX
+# Virus_trojan-CAUTION-don-t-try-this
 
 !!!!!!!!!!!! THIS CAN HARM YOUR COMPUTER AND MAY CORRUPT YOUR SYSTEM!!!!!!!!!!!!!!!!!!!
 
